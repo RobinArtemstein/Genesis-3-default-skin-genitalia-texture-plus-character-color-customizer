@@ -1,1 +1,1 @@
-# Genesis-3-default-skin-genitalia-texture-character-color-customizer
+# Genesis-3 default skin genitalia texture + Character color customizer
