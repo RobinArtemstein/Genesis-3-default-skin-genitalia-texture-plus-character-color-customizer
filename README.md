@@ -1,1 +1,1 @@
-# Genesis 3 default skin genitalia texture + Character color customizer
+# Genesis 3 default skin gen****ia texture + Character color customizer
